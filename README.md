@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @fk-bashayir
 - 👀 I’m interested in killing everybody
 - 🌱 I’m currently learning how to kill somebody by coding
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on notin
 - 📫 How to reach my instagram fight_until_night
 - 😄 Pronouns: only man bro wtf
 - ⚡ Fun fact: nothing funny at all
